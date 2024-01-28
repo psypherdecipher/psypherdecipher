@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @psypherdecipher, but whats there in name
 - 👀 I’m not interested in humans 
 - 🌱 I’m currently learning to become 01
-- 💞️ I’m looking to collaborate on nothing
+- 💞️ I’m looking to collaborate on nothingness
 - 📫 How to reach me: Through tallypathy, incase it works
 - 😄 Pronouns: Alien
 - ⚡ Fun fact: Intel Inside
