@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothingness
 - 📫 How to reach me: Tallypathy, incase it works
 - 😄 Pronouns: Alien
-- ⚡ Fun fact: Intel inside
+- ⚡ Fun fact: PSYnide inside
 
 <!---
 psypherdecipher/psypherdecipher is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
