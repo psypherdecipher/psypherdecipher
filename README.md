@@ -1,9 +1,9 @@
-- 👋 Hi, I’m @psypherdecipher, but whats there in name
+- 👋 Hi, I’m kazaem!! iykyk
 - 👀 I’m not interested in humans 
-- 🌱 I’m currently learning to become 01
-- 💞️ I’m looking to collaborate on nothingness
-- 📫 How to reach me: Tallypathy, incase it works
-- 😄 Pronouns: Alien
+- 🌱 I’m currently learning to become..system loading...
+- 💞️ I’m looking to collaborate on ZERO
+- 📫 How to reach me: Tallypathy, if it works
+- 😄 Pronouns: xe
 - ⚡ Fun fact: PSYnide inside
 
 <!---
