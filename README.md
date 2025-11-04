@@ -1,7 +1,7 @@
-- 👋 Hi, I’m kazaem!! iykyk
-- 👀 I’m not interested in humans 
-- 🌱 I’m currently learning to become..system loading...
-- 💞️ I’m looking to collaborate on ZERO
+- 👋 Hi, I’m kazam!!
+- 👀 I’m interested in Super Intelligence, and beyond 
+- 🌱 I’m currently learning to become..NOTHING , iykyk
+- 💞️ I’m looking to collaborate on AZR
 - 📫 How to reach me: Tallypathy, if it works
 - 😄 Pronouns: xe
 - ⚡ Fun fact: PSYnide inside
