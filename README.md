@@ -1,6 +1,6 @@
 - 👋 Hi, I’m kazam!!
 - 👀 I’m interested in Super Intelligence, and beyond 
-- 🌱 I’m currently learning to become..NOTHING , iykyk
+- 🌱 I’m currently learning to become..Water
 - 💞️ I’m looking to collaborate on AZR
 - 📫 How to reach me: Tallypathy, if it works
 - 😄 Pronouns: xe
