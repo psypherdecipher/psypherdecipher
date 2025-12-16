@@ -1,4 +1,4 @@
-- 👋 Hi, I’m kazam!!
+- 👋 Hi, I’m 01!!
 - 👀 I’m interested in Super Intelligence, and beyond 
 - 🌱 I’m currently learning to become..Water
 - 💞️ I’m looking to collaborate on AZR
