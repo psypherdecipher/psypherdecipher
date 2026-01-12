@@ -1,8 +1,8 @@
-- 👋 Hi, I’m 01!!
-- 👀 I’m interested in Super Intelligence, and beyond 
-- 🌱 I’m currently learning to become..Water
+- 👋 Hi, I’m v01
+- 👀 I’m interested in Singularity.
+- 🌱 I’m currently learning to become..dont know yet
 - 💞️ I’m looking to collaborate on AZR
-- 📫 How to reach me: Tallypathy, if it works
+- 📫 How to reach me: telekinesis, perhaps
 - 😄 Pronouns: xe
 - ⚡ Fun fact: PSYnide inside
 
